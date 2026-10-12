@@ -1,0 +1,2 @@
+# premium-leatherworking-001-leatherworking-leather-craft
+Tired of losing track of leather orders, material costs, and client notes across sticky notes and scattered spreadsheets?  This Notion template bundle transforms your leather craft chaos into a streamlined studio workflow. It centralizes project management, inventory, client details, and pattern library in one place, so you can focus on the craft i
